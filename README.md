@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @IHIXly or Zyres
 - 👀 I’m interested in programming and tech stuff in general ^^
-- 🌱 I’m currently learning Assembly / C / typescript
 - 📫 How to reach me: Matrix: (@zyres:creo.hyperstella.de) 
 - 😄 Pronouns: Any
 - ⚡ Fun fact: My fursonas name is Zyres
