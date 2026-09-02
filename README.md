@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IHIXly or Zyres
 - 👀 I’m interested in programming and tech stuff in general ^^
-- 📫 How to reach me: Matrix: (@zyres:creo.hyperstella.de) 
+- 📫 How to reach me: N.A.
 - 😄 Pronouns: Any
 - ⚡ Fun fact: My fursonas name is Zyres
 
